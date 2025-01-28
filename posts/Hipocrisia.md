@@ -1,5 +1,5 @@
 ---
-title: 'Os pais da hipocrisia'
+title: 'Os pais da hipocrisia: Quando a Virtude Vira Espetáculo'
 date: '2023-05-01'
 ---
 
