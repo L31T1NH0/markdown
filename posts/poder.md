@@ -1,6 +1,6 @@
 ---
 title: ''
-date: '2025-01-2*'
+date: '2025-01-27'
 ---
 Brasileiro, o povo que tem história,
 Marcada por uma trajetória,
