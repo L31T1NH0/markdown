@@ -1,5 +1,5 @@
 ---
-title: ''
+title: 'poder'
 date: '2025-01-27'
 ---
 Brasileiro, o povo que tem história,
