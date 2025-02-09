@@ -7,7 +7,7 @@ Penny já terminou de preparar a comida, e nota-se que está atrasada, *vou ter 
 Pega o celular e digita rapidamente:
 Penny [7:15] Marrs, volta para casa, meu amor. Já estou saindo para o trabalho. Tem comida na mesa. Beijos, filho. 
 
-Relutante em sair sem esperar Marrs, observa a tela do celular por um instante. —— É melhor eu ir. Penny logo sai de casa, fecha a porta, corre e entra no carro de maneira apressada, quase como se sua vida dependesse disso, e já nesse momento esqueceu que seu filho fora a algum lugar, que não se sabe. Mas nesse momento, não importa. Penny saiu.
+Relutante em sair sem esperar Marrs, observa a tela do celular por um instante. — É melhor eu ir. Penny logo sai de casa, fecha a porta, corre e entra no carro de maneira apressada, quase como se sua vida dependesse disso, e já nesse momento esqueceu que seu filho fora a algum lugar, que não se sabe. Mas nesse momento, não importa. Penny saiu.
 
 - barulho de estilhaçar ao fundo
 
